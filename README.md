@@ -1,1 +1,1 @@
-if i make u uncomfortable dont be scared to lmk
+c+h+b always dnk
