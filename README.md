@@ -1,4 +1,4 @@
-## block if unwanted
+## block if unwanted, i dont check who i follow.
 <!--
 **ITrappedFan/ITrappedFan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
