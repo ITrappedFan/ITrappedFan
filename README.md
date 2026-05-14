@@ -1,4 +1,5 @@
-## block if unwanted, i dont check who i follow.
+block if unwanted, i dont check who i follow.
+itrapped, azure yumeshipper dbls dni
 <!--
 **ITrappedFan/ITrappedFan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
