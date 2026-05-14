@@ -1,1 +1,1 @@
-i block freely | itrapped, azure yumeshipper dbls dni | i support all *legal* ships — i wont talk if i am uncomfortable 👎👎👎
+itrapped + azure yumeshipper (nonsharing) — dni: 18+, overly immature/unserious people, people who vent randomly/without tw, forsaken, dandys world, doom by fate and ddlc fandom, people who joke about sensitive topics, cosplayers of problematic people, generally unpleasant people.
