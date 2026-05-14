@@ -1,1 +1,1 @@
-itrapped + azure yumeshipper (nonsharing) — dni: 18+, overly immature/unserious people, people who vent randomly/without tw, forsaken, dandys world, doom by fate and ddlc fandom, people who joke about sensitive topics, cosplayers of problematic people, generally unpleasant people.
+if i make u uncomfortable dont be scared to lmk
